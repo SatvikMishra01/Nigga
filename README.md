@@ -1,2 +1,1 @@
-# Nigga
 A new user.
